@@ -110,7 +110,10 @@ easy 2 read:3
 
 •Do not try to take inspiration from My Pony
 
-•
+•if you think cannibalism is cool. 'fire'
+
+•you ask to be my friend straight away
+
 •If you are an old friend of mine or are trying to get back at me, dont do that. there is a reason why I left you, and it was because of you.
 
 
