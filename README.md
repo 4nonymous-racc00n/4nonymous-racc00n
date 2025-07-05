@@ -70,3 +70,45 @@ easy 2 read:3
 ⠀⠀                                                     ⠀  ⠀ 
 
 [![0b310c8f6c7d6e3f2fb98f16f10f9549.jpg](https://i.postimg.cc/7hpZ2N2y/0b310c8f6c7d6e3f2fb98f16f10f9549.jpg)](https://postimg.cc/hQ1nFTsC)⠀⠀again, use white theme for better experience 
+
+
+❝恋に落ちるのを想像する
+
+月明かりの下で君と昼寝をする
+𓍯𓂃ꨄ︎🪸
+君と波を思い浮かべる🪼
+𓆝 𓆟 𓆞 𓆝 𓆟
+君の顔に浮かぶ海の色
+🪷‧₊˚♪ 𝄞₊˚⊹
+
+私の˚₊· ͟͟͞͞➳❥ 心は君の空に
+
+さあ、一緒に飛び立とう🪽
+༄༄༄
+°˖➴ずっと僕と一緒にいてくれる？🌹❞
+
+ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
+
+જ⁀➴ のような方とは交流しないでください。
+•人種差別主義者
+•ナルシスト
+•13歳未満または22歳以上
+
+•私のポニーからインスピレーションを得ようとしないでください
+
+•もしあなたが私の古い友人であったり、私に復讐しようとしているのなら、私があなたの元を去ったのには理由があります。それはあなたのためです。
+
+🪷
+
+જ⁀➴ Do not interact if:
+
+•Racists
+
+•Narcissists
+
+•Under 13 or over 22
+
+•Do not try to take inspiration from My Pony
+
+•
+•If you are an old friend of mine or are trying to get revenge on me, there is a reason why I left you, and it was because of you.
