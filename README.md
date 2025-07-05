@@ -67,7 +67,6 @@ easy 2 read:3
 
 
 -more about me!
-⠀⠀                                                     ⠀  ⠀ ⠀⠀⠀
+⠀⠀                                                     ⠀  ⠀ 
 
-
-⠀⠀⠀⠀⠀[![0b310c8f6c7d6e3f2fb98f16f10f9549.jpg](https://i.postimg.cc/PxwbDSLt/0b310c8f6c7d6e3f2fb98f16f10f9549.jpg)](https://postimg.cc/62BGJLLS)⠀⠀⠀again, use white theme for better experience 
+[![0b310c8f6c7d6e3f2fb98f16f10f9549.jpg](https://i.postimg.cc/7hpZ2N2y/0b310c8f6c7d6e3f2fb98f16f10f9549.jpg)](https://postimg.cc/hQ1nFTsC)⠀⠀again, use white theme for better experience 
