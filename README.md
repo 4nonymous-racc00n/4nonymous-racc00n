@@ -64,3 +64,10 @@ easy 2 read:3
  •   blue + Yung kai  !!
 
 ╰ ★ straigh . she/her . Japan🇯🇵🥢
+
+
+-more about me!
+⠀⠀                                                     ⠀  ⠀ ⠀⠀⠀
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀
