@@ -88,7 +88,7 @@ easy 2 read:3
 °˖➴ずっと僕と一緒にいてくれる？🌹❞
 
 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
-
+[![73297b51ebc0d9ca13da2cb476b3918f.gif](https://i.postimg.cc/VNLgT9Jw/73297b51ebc0d9ca13da2cb476b3918f.gif)](https://postimg.cc/nXgq9DKS)
 જ⁀➴ のような方とは交流しないでください。
 •人種差別主義者
 •ナルシスト
