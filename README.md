@@ -120,4 +120,4 @@ easy 2 read:3
 •If you are an old friend of mine or are trying to get back at me, dont do that. there is a reason why I left you, and it was because of you.
 
 
-[![4435195d18210f5cd5e5928e4e8f5f23.gif](https://i.postimg.cc/WpGvsj94/4435195d18210f5cd5e5928e4e8f5f23.gif)](https://postimg.cc/0ry3fg1g)
+[![4435195d18210f5cd5e5928e4e8f5f23.gif](https://i.postimg.cc/WpGvsj94/4435195d18210f5cd5e5928e4e8f5f23.gif)](https://postimg.cc/0ry3fg1g)[![a7969ab3a56c6101af08b56a0cb674e1.gif](https://i.postimg.cc/vBrnWsx3/a7969ab3a56c6101af08b56a0cb674e1.gif)](https://postimg.cc/9Rfzhsp7)
