@@ -110,7 +110,7 @@ easy 2 read:3
 
 •Do not try to take inspiration from My Pony
 
-•if you think cannibalism is cool. 'fire'
+•if you think cannibalism or arson is fire or as some people use 'peak'
 
 •you ask to be my friend straight away
 
