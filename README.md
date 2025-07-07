@@ -91,7 +91,7 @@ easy 2 read:3
 °˖➴ずっと僕と一緒にいてくれる？🌹❞
 
 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
-[![73297b51ebc0d9ca13da2cb476b3918f.gif](https://i.postimg.cc/VNLgT9Jw/73297b51ebc0d9ca13da2cb476b3918f.gif)](https://postimg.cc/nXgq9DKS)
+[![tumblr-400240ee824a3af707f820dc5b33fe6e-6578d524-250.gif](https://i.postimg.cc/xCg3x7Pn/tumblr-400240ee824a3af707f820dc5b33fe6e-6578d524-250.gif)](https://postimg.cc/bDDndmMB)
 જ⁀➴ のような方とは交流しないでください。
 •人種差別主義者
 •ナルシスト
