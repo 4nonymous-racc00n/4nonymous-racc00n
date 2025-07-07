@@ -3,3 +3,8 @@
 
 [![Tumblr-l-111769943905247.png](https://i.postimg.cc/Gt35Zg61/Tumblr-l-111769943905247.png)](https://postimg.cc/62ScZc9H)
 [![Untitled85-20250708024515.png](https://i.postimg.cc/Qt8mt9mQ/Untitled85-20250708024515.png)](https://postimg.cc/R3YKp0jh)
+╭ ❝ name: utsukushi un-yang-chai❞
+ 
+ •   blue + Yung kai  !!
+
+╰ ★ straight . she/her . Japan🇯🇵🥢
