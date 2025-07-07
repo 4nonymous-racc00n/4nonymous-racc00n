@@ -56,6 +56,7 @@
 
 すみません、難しい言葉は苦手です。
 私に対して賢い言葉を使わないで下さい。理解しにくいです。[![Tumblr-l-111577271227269.gif](https://i.postimg.cc/W3cyN1qj/Tumblr-l-111577271227269.gif)](https://postimg.cc/jWvcvKhk)
+
 [![Tumblr-l-111724109198318.gif](https://i.postimg.cc/YCJnRC3g/Tumblr-l-111724109198318.gif)](https://postimg.cc/Hr99sHFs)Sorry, I'm not good with difficult words.
  Please don't use clever words on me. 
 It's hard for me to understand.
