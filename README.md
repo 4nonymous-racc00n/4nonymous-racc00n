@@ -148,8 +148,7 @@ with salmon.
 
 [![Tumblr-l-111514480608122.gif](https://i.postimg.cc/VNZhxPXB/Tumblr-l-111514480608122.gif)](https://postimg.cc/2qvTWJcV)
 
-[![tumblr-c0f8a350ae75f51f08321ae84331008c-3c9862dc-400.gif](https://i.postimg.cc/3NHtTS6w/tumblr-c0f8a350ae75f51f08321ae84331008c-3c9862dc-400.gif)](https://postimg.cc/Pp2Wb4dG)
-
+[![Untitled85-20250708024515.png](https://i.postimg.cc/Qt8mt9mQ/Untitled85-20250708024515.png)](https://postimg.cc/R3YKp0jh)
 THANKS YOU FOR READING!♡
 
 
