@@ -97,6 +97,7 @@ Gohan x goku shiper,dni.
 好きな色 "[![Tumblr-l-111542294018679.gif](https://i.postimg.cc/mDGLF965/Tumblr-l-111542294018679.gif)](https://postimg.cc/zL0ZsyNC)"
 
 団子、牛肉ラーメン、
+
 そして白米と鮭が大好きです
 
 Age: 16
