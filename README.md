@@ -52,3 +52,4 @@
 •you ask to be my friend straight away
 
 •If you are an old friend of mine or are trying to get back at me, dont do that. there is a reason why I left you, and it was because of you.
+[![Tumblr-l-113820094244280.png](https://i.postimg.cc/wBMqXFw3/Tumblr-l-113820094244280.png)](https://postimg.cc/2qpNmdRf)
