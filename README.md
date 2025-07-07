@@ -39,7 +39,7 @@ hello [![tumblr-luizhxfzh71ql1l0v540.gif](https://i.postimg.cc/CKsG5tXk/tumblr-l
      ✮ִ ࣪𖤐___ ★₊˚﹟愛してます🥢 '
 
 .☘︎ ݁˖ 𓍯𓂃 pronouns༄
-.° 𝚂hℯ•heя
+.° 𝚂hℯ•heя. biologically/born a girl<3
     
  
 [![tumblr-inline-p7yqw97fe-N1qid2nw-75sq-gif.webp](https://i.postimg.cc/8PdP2S6R/tumblr-inline-p7yqw97fe-N1qid2nw-75sq-gif.webp)](https://postimg.cc/RNFBt2Gh)
