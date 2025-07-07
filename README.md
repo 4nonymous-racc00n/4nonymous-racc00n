@@ -62,3 +62,4 @@
  Please don't use clever words on me. 
 It's hard for me to understand.
 [![Tumblr-l-111536165793645.gif](https://i.postimg.cc/7hYmhGHv/Tumblr-l-111536165793645.gif)](https://postimg.cc/wyZhbBRF)
+[![Tumblr-l-114750534028846.png](https://i.postimg.cc/Hx39qYQ6/Tumblr-l-114750534028846.png)](https://postimg.cc/jwwfNr3f)
