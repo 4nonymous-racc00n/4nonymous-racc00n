@@ -129,3 +129,4 @@ easy 2 read:3
 [![4435195d18210f5cd5e5928e4e8f5f23.gif](https://i.postimg.cc/WpGvsj94/4435195d18210f5cd5e5928e4e8f5f23.gif)](https://postimg.cc/0ry3fg1g)[![a7969ab3a56c6101af08b56a0cb674e1.gif](https://i.postimg.cc/vBrnWsx3/a7969ab3a56c6101af08b56a0cb674e1.gif)](https://postimg.cc/9Rfzhsp7)
 and don't 'bark bark bark' me
 [![tumblr-2562e265176b683858f5c05406a39b1e-b1e3549d-75-gif.webp](https://i.postimg.cc/brcp5CYV/tumblr-2562e265176b683858f5c05406a39b1e-b1e3549d-75-gif.webp)](https://postimg.cc/xJRwJPzL) [![tumblr-5f6fcf6145a34f83ff6faec2ba665d24-bd46750c-250.gif](https://i.postimg.cc/hvd100p0/tumblr-5f6fcf6145a34f83ff6faec2ba665d24-bd46750c-250.gif)](https://postimg.cc/5Qfz48cH)
+[![tumblr-4183e6d7da163a87493731c089d68b33-1138c697-250.gif](https://i.postimg.cc/tRK54L4v/tumblr-4183e6d7da163a87493731c089d68b33-1138c697-250.gif)](https://postimg.cc/nM17dS7q)
