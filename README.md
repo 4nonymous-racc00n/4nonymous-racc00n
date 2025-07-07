@@ -19,7 +19,7 @@
 
         𝜗𝜚 ──   𝑭𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒔𝒐𝒏𝒈 : 𝒃𝒍𝒖𝒆 : 𝒀𝒖𝒏𝒈 kai
 
-[![tumblr-luizhxfzh71ql1l0v540.gif](https://i.postimg.cc/CKsG5tXk/tumblr-luizhxfzh71ql1l0v540.gif)](https://postimg.cc/f3ktgHwR)
+[![tumblr-luizhxfzh71ql1l0v540.gif](https://i.postimg.cc/CKsG5tXk/tumblr-luizhxfzh71ql1l0v540.gif)](https://postimg.cc/f3ktgHwR)[![tumblr-luizhxfzh71ql1l0v540.gif](https://i.postimg.cc/CKsG5tXk/tumblr-luizhxfzh71ql1l0v540.gif)](https://postimg.cc/f3ktgHwR)
 ╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ ╴╴╴╴╴╴╴⊹ꮺ˚ ╴╴╴╴╴⊹˚ ╴╴╴╴˚ೃ ╴╴╴╴╴╴╴⊹ꮺ˚ 
  
 ˚ ༘ ೀ⋆｡˚ ╭────── · · ୨୧ · · ──────╮
