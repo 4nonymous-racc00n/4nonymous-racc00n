@@ -8,3 +8,4 @@
  •   blue + Yung kai  !!
 
 ╰ ★ straight . she/her . Japan🇯🇵🥢
+[![tumblr-c0f8a350ae75f51f08321ae84331008c-3c9862dc-400.gif](https://i.postimg.cc/3NHtTS6w/tumblr-c0f8a350ae75f51f08321ae84331008c-3c9862dc-400.gif)](https://postimg.cc/Pp2Wb4dG)
