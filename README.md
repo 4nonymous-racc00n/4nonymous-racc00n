@@ -104,7 +104,8 @@ It's hard for me to understand.
 鬼滅の刃のエリアにいるよ[![Tumblr-l-111270379770604.gif](https://i.postimg.cc/qvfyZhPk/Tumblr-l-111270379770604.gif)](https://postimg.cc/tY5ssTRf)
 [![Tumblr-l-113606254066933.png](https://i.postimg.cc/9MzpZ4Ry/Tumblr-l-113606254066933.png)](https://postimg.cc/5YdLM2mt)
 
-please if your are 
+please DNI if you ship
+
 goku x vegeta. 
 
 goku x broly 
@@ -112,6 +113,13 @@ goku x broly
 trunks x goten
 
 frieza x piccolo 
+
+sonic x shadow
+
+sonic x knuckles 
+
+sonic x TAILS!!
+
 
 Gohan x goku shiper,dni.
 [![Tumblr-l-114757426482033.png](https://i.postimg.cc/PJjCh9jN/Tumblr-l-114757426482033.png)](https://postimg.cc/VrKfW75c)
@@ -129,6 +137,7 @@ Gohan x goku shiper,dni.
 
 Age: 16
 Favorite color: "[![Tumblr-l-111542294018679.gif](https://i.postimg.cc/mDGLF965/Tumblr-l-111542294018679.gif)](https://postimg.cc/zL0ZsyNC)"
+
 I love dumplings,
  
 beef ramen, 
