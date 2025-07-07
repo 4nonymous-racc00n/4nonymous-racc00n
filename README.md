@@ -147,7 +147,7 @@ with salmon.
 . 
 
 [![Untitled87-20250708042631.png](https://i.postimg.cc/P55Jy1yp/Untitled87-20250708042631.png)](https://postimg.cc/nCNncj6p)
-[![Untitled85-20250708024515.png](https://i.postimg.cc/Qt8mt9mQ/Untitled85-20250708024515.png)](https://postimg.cc/R3YKp0jh)
+
 THANKS YOU FOR READING!♡
 
 
