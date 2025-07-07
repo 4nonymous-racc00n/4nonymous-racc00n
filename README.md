@@ -32,11 +32,25 @@
 好きな番組
 東京喰種
 
+
 ドラゴンボール
+
 
 人生が
 みかんを与えてくれたら
 
+[![Tumblr-l-116501874045093.png](https://i.postimg.cc/HsJkRT53/Tumblr-l-116501874045093.png)](https://postimg.cc/6yXKGJMG)
+
+Favorite TV Shows:
+
+ Tokyo Ghoul
+
+
+Dragon Ball
+
+
+when life gives
+you tangerines
 
 [![Tumblr-l-113601039122745.png](https://i.postimg.cc/K8yxWxJX/Tumblr-l-113601039122745.png)](https://postimg.cc/Yh85Gc58)
 જ⁀➴ のような方とは交流しないでください。
