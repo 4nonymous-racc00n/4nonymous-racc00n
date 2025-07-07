@@ -1,5 +1,6 @@
 [![tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif](https://i.postimg.cc/ZYGWkHDS/tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif)](https://postimg.cc/3WZ8mXTS)[![tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif](https://i.postimg.cc/ZYGWkHDS/tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif)](https://postimg.cc/3WZ8mXTS)
-⠀⠀⠀⣿⣦⡀⠀⠀⠀⠀⢀⡄⠀⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀[![38046c54ce7f0c957aae1c2b168d4af2.jpg](https://i.postimg.cc/xjM0m2gw/38046c54ce7f0c957aae1c2b168d4af2.jpg)](https://postimg.cc/G93w06WK)⠀
+⠀⣿⣦⡀⠀⠀⠀⠀⢀⡄⠀⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⣿⡿⠻⢶⣤⣶⣾⣿⠁⠀⢽⣆⡀⢀⣴⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀this Pic only works with bright mode⋆
 ⠀⠀⣀⣽⠉⠀⠀⠀⣠⣿⠃⠀⠀⢀⣿⣿⣿⣿⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠴⣾⣿⣀⣀⠀⠀⠈⠉⢻⣦⡀⠚⠻⠿⣿⣿⠿⠛⠂⠀⠀⢀⣧⠀⠀⠀⠀⠀⠀⠀
