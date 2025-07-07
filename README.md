@@ -90,3 +90,10 @@ frieza x piccolo
 
 Gohan x goku shiper,dni.
 [![Tumblr-l-114757426482033.png](https://i.postimg.cc/PJjCh9jN/Tumblr-l-114757426482033.png)](https://postimg.cc/VrKfW75c)
+
+
+
+年齢• 16歳
+好きな色 "[![Tumblr-l-111542294018679.gif](https://i.postimg.cc/mDGLF965/Tumblr-l-111542294018679.gif)](https://postimg.cc/zL0ZsyNC)"
+団子、牛肉ラーメン、
+そして白米と鮭が大好きです
