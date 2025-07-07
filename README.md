@@ -1,3 +1,4 @@
+[![tumblr-inline-p7okb2of-JW1qid2nw-250.gif](https://i.postimg.cc/wMCHSW6b/tumblr-inline-p7okb2of-JW1qid2nw-250.gif)](https://postimg.cc/dZjzCjZ8)[![tumblr-inline-p7okb2of-JW1qid2nw-250.gif](https://i.postimg.cc/wMCHSW6b/tumblr-inline-p7okb2of-JW1qid2nw-250.gif)](https://postimg.cc/dZjzCjZ8)
 ⠀⠀⠀⣿⣦⡀⠀⠀⠀⠀⢀⡄⠀⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⣿⡿⠻⢶⣤⣶⣾⣿⠁⠀⢽⣆⡀⢀⣴⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀this Pic only works with bright mode⋆
 ⠀⠀⣀⣽⠉⠀⠀⠀⣠⣿⠃⠀⠀⢀⣿⣿⣿⣿⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
