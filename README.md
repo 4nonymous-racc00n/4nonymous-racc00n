@@ -43,12 +43,15 @@
 
 •Racists
 
-•Narcissists
+[![Tumblr-l-111559881635589.gif](https://i.postimg.cc/d06C1WL1/Tumblr-l-111559881635589.gif)](https://postimg.cc/QBBCYJgG)•Narcissists
 
 •Under 13 or over 22
-•Do not try to take inspiration from My Pony
 
-•if you think cannibalism or arson is fire or as some people use 'peak'
+•Do not try to take 
+inspiration from My Pony[![Tumblr-l-111270379770604.gif](https://i.postimg.cc/qvfyZhPk/Tumblr-l-111270379770604.gif)](https://postimg.cc/tY5ssTRf)
+
+•if you think cannibalism or arson 
+is fire or as some people use 'peak'
 
 •you ask to be my friend straight away
 
