@@ -43,7 +43,7 @@
  🪷name𝓖𐙚 𝐮†𝚂𝐮𝒦𝐮s𝓱ı/utsukushi<3
 
 
-[![tumblr-9ec5f574f4c97504af3079feabd78810-38d6824d-250.gif](https://i.postimg.cc/8Pc6DsTR/tumblr-9ec5f574f4c97504af3079feabd78810-38d6824d-250.gif)](https://postimg.cc/Vdy6Wfrv)
+[![tumblr-inline-p7okb2of-JW1qid2nw-250.gif](https://i.postimg.cc/wMCHSW6b/tumblr-inline-p7okb2of-JW1qid2nw-250.gif)](https://postimg.cc/dZjzCjZ8)
      
   જ⁀➴˚religion ༘ ೀ• "†"
 
