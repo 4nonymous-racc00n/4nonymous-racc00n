@@ -77,3 +77,4 @@ It's hard for me to understand.
 [![Tumblr-l-111559881635589.gif](https://i.postimg.cc/d06C1WL1/Tumblr-l-111559881635589.gif)](https://postimg.cc/QBBCYJgG)ポニータウンでは、たいていドラゴンボール、
 呪術廻戦、ソニック、
 鬼滅の刃のエリアにいるよ[![Tumblr-l-111270379770604.gif](https://i.postimg.cc/qvfyZhPk/Tumblr-l-111270379770604.gif)](https://postimg.cc/tY5ssTRf)
+[![Tumblr-l-113606254066933.png](https://i.postimg.cc/9MzpZ4Ry/Tumblr-l-113606254066933.png)](https://postimg.cc/5YdLM2mt)
