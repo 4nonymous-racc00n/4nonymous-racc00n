@@ -68,11 +68,14 @@ I ᥫ᭡.𝒴ou⋆𐙚 ̊.
 🪶𝑻𝓱𝒂𝓃𝒌𝚂 𝒀♡u 
 [![tumblr-luizhxfzh71ql1l0v540.gif](https://i.postimg.cc/CKsG5tXk/tumblr-luizhxfzh71ql1l0v540.gif)](https://postimg.cc/f3ktgHwR)
 easy 2 read:3
+.
+
 ╭ ❝ name: utsukushi un-yang-chai❞
  
  •   blue + Yung kai  !!
 
 ╰ ★ straight . she/her . Japan🇯🇵🥢
+
 
 [![64f24a2aec624ffb36ece56bda58d9ce.gif](https://i.postimg.cc/GpKDdDTj/64f24a2aec624ffb36ece56bda58d9ce.gif)](https://postimg.cc/p99rBpZ9)
 -more about me!
