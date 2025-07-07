@@ -53,3 +53,6 @@
 
 •If you are an old friend of mine or are trying to get back at me, dont do that. there is a reason why I left you, and it was because of you.
 [![Tumblr-l-113820094244280.png](https://i.postimg.cc/wBMqXFw3/Tumblr-l-113820094244280.png)](https://postimg.cc/2qpNmdRf)
+
+すみません、難しい言葉は苦手です。
+私に対して賢い言葉を使わないで下さい。理解しにくいです。[![Tumblr-l-111577271227269.gif](https://i.postimg.cc/W3cyN1qj/Tumblr-l-111577271227269.gif)](https://postimg.cc/jWvcvKhk)
