@@ -99,6 +99,7 @@ Gohan x goku shiper,dni.
 団子、牛肉ラーメン、
 
 そして白米と鮭が大好きです
+
 [![Tumblr-l-111514480608122.gif](https://i.postimg.cc/VNZhxPXB/Tumblr-l-111514480608122.gif)](https://postimg.cc/2qvTWJcV)
 
 Age: 16
