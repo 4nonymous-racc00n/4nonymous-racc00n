@@ -37,7 +37,7 @@
 
 
 人生が
-みかんを与えてくれたら
+みかんを与えてくれたら[![Tumblr-l-116645296941990.gif](https://i.postimg.cc/gk92CfDW/Tumblr-l-116645296941990.gif)](https://postimg.cc/vDzy92kq)
 
 [![Tumblr-l-116501874045093.png](https://i.postimg.cc/HsJkRT53/Tumblr-l-116501874045093.png)](https://postimg.cc/6yXKGJMG)
 
@@ -50,7 +50,7 @@ Dragon Ball
 
 
 when life gives
-you tangerines
+you tangerines[![Tumblr-l-116645296941990.gif](https://i.postimg.cc/gk92CfDW/Tumblr-l-116645296941990.gif)](https://postimg.cc/vDzy92kq)
 
 [![Tumblr-l-113601039122745.png](https://i.postimg.cc/K8yxWxJX/Tumblr-l-113601039122745.png)](https://postimg.cc/Yh85Gc58)
 જ⁀➴ のような方とは交流しないでください。
