@@ -28,7 +28,7 @@
  𝓵 𝐜ᥫ᭡𝐮𞋎𝒹 𝚂𝑻𝒂ℛe 𞋎𝓽.𝒌.ℯ 𝓦𝓱𝓪𝓽𝓵𝓃𝓙 ˚ ༘𝚂𑁤𝒂я𝚂⋆｡˚" 
 
 
-. ᵎᵎ
+. ᵎᵎ I don't talk much, not good at starting conversation. so bring up anything and it will roll with it<3
       ⩇⩇:⩇⩇
      ✮ִ ࣪𖤐___ ★₊˚﹟愛してます🥢 '
 
