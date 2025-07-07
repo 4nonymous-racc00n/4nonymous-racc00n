@@ -26,3 +26,4 @@
 ༄༄༄
 °˖➴ずっと僕と一緒にいてくれる？🌹❞
 
+[![tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif](https://i.postimg.cc/h4pmgZN3/tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif)](https://postimg.cc/BtPbBpSx)[![tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif](https://i.postimg.cc/h4pmgZN3/tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif)](https://postimg.cc/BtPbBpSx)
