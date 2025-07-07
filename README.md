@@ -122,7 +122,7 @@ easy 2 read:3
 •if you think cannibalism or arson is fire or as some people use 'peak'
 
 •you ask to be my friend straight away
-
+[![tumblr-6fa7952fcc03c32675e04dbe070b3afa-e22733c0-75-gif.webp](https://i.postimg.cc/W1PXXQRq/tumblr-6fa7952fcc03c32675e04dbe070b3afa-e22733c0-75-gif.webp)](https://postimg.cc/QH0QMYdj)
 •If you are an old friend of mine or are trying to get back at me, dont do that. there is a reason why I left you, and it was because of you.
 
 
