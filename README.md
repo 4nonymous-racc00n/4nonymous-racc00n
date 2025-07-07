@@ -61,3 +61,4 @@
 [![Tumblr-l-111724109198318.gif](https://i.postimg.cc/YCJnRC3g/Tumblr-l-111724109198318.gif)](https://postimg.cc/Hr99sHFs)Sorry, I'm not good with difficult words.
  Please don't use clever words on me. 
 It's hard for me to understand.
+[![Tumblr-l-111536165793645.gif](https://i.postimg.cc/7hYmhGHv/Tumblr-l-111536165793645.gif)](https://postimg.cc/wyZhbBRF)
