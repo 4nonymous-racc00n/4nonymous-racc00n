@@ -104,7 +104,7 @@ easy 2 read:3
 •もしあなたが私の古い友人であったり、私に復讐しようとしているのなら、私があなたの元を去ったのには理由があります。それはあなたのためです。
 
 🪷
-
+[![tumblr-lsd1gs8-Up-G1ql1l0v540.gif](https://i.postimg.cc/6QtZkcq3/tumblr-lsd1gs8-Up-G1ql1l0v540.gif)](https://postimg.cc/jD3CNzz0)
 જ⁀➴ Do not interact if:
 
 •Racists
