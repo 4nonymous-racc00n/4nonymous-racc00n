@@ -28,6 +28,16 @@
 °˖➴ずっと僕と一緒にいてくれる？🌹❞
 
 [![tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif](https://i.postimg.cc/h4pmgZN3/tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif)](https://postimg.cc/BtPbBpSx)[![tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif](https://i.postimg.cc/h4pmgZN3/tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif)](https://postimg.cc/BtPbBpSx)
+
+好きな番組
+東京喰種
+
+ドラゴンボール
+
+人生が
+みかんを与えてくれたら
+
+
 [![Tumblr-l-113601039122745.png](https://i.postimg.cc/K8yxWxJX/Tumblr-l-113601039122745.png)](https://postimg.cc/Yh85Gc58)
 જ⁀➴ のような方とは交流しないでください。
 •人種差別主義者
