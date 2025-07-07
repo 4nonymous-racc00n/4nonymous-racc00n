@@ -61,7 +61,7 @@ I ᥫ᭡.𝒴ou⋆𐙚 ̊.
            ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 •
 🪶𝑻𝓱𝒂𝓃𝒌𝚂 𝒀♡u [![035d8c66c2752f1ba45ed4b2b958ca70.jpg](https://i.postimg.cc/kG8HDh5P/035d8c66c2752f1ba45ed4b2b958ca70.jpg)](https://postimg.cc/0KknBnmV)
-
+[![tumblr-lt32lr1s-RO1ql1l0v540.gif](https://i.postimg.cc/Pf2S2L6Y/tumblr-lt32lr1s-RO1ql1l0v540.gif)](https://postimg.cc/c6t7JJGL)
 easy 2 read:3
 ╭ ❝ name: utsukushi un-yang-chai❞
  
