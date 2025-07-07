@@ -55,7 +55,14 @@ is fire or as some people use 'peak'
 
 •you ask to be my friend straight away
 
-•If you are an old friend of mine or are trying to get back at me, dont do that. there is a reason why I left you, and it was because of you.
+•If you are an old friend of mine or are trying to get back at me, 
+dont do that. there is a reason why I left you, 
+and it was because of you.
+
+I beg you, dont copy my respiratory/profile, 
+it'll make me
+really sad and frustrated. they're hard and they
+take a bit some time[![Tumblr-l-111270379770604.gif](https://i.postimg.cc/qvfyZhPk/Tumblr-l-111270379770604.gif)](https://postimg.cc/tY5ssTRf)
 [![Tumblr-l-113820094244280.png](https://i.postimg.cc/wBMqXFw3/Tumblr-l-113820094244280.png)](https://postimg.cc/2qpNmdRf)
 
 すみません、難しい言葉は苦手です。
