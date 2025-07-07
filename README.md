@@ -1,4 +1,4 @@
-[![tumblr-inline-p7okb2of-JW1qid2nw-250.gif](https://i.postimg.cc/wMCHSW6b/tumblr-inline-p7okb2of-JW1qid2nw-250.gif)](https://postimg.cc/dZjzCjZ8)
+[![tumblr-inline-p7okb2of-JW1qid2nw-250.gif](https://i.postimg.cc/wMCHSW6b/tumblr-inline-p7okb2of-JW1qid2nw-250.gif)](https://postimg.cc/dZjzCjZ8)[![tumblr-inline-p7okb2of-JW1qid2nw-250.gif](https://i.postimg.cc/wMCHSW6b/tumblr-inline-p7okb2of-JW1qid2nw-250.gif)](https://postimg.cc/dZjzCjZ8)
 [![fa835aa26ef818b5fb466e966c4beef3.jpg](https://i.postimg.cc/QtkqKG3D/fa835aa26ef818b5fb466e966c4beef3.jpg)](https://postimg.cc/YG0FTP0D)⠀⠀⠀⣿⣦⡀⠀⠀⠀⠀⢀⡄⠀⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⣿⡿⠻⢶⣤⣶⣾⣿⠁⠀⢽⣆⡀⢀⣴⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀this Pic only works with bright mode⋆
 ⠀⠀⣀⣽⠉⠀⠀⠀⣠⣿⠃⠀⠀⢀⣿⣿⣿⣿⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
