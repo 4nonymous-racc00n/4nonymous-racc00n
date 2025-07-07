@@ -102,6 +102,8 @@ Gohan x goku shiper,dni.
 Age: 16
 Favorite color: "[![Tumblr-l-111542294018679.gif](https://i.postimg.cc/mDGLF965/Tumblr-l-111542294018679.gif)](https://postimg.cc/zL0ZsyNC)"
 I love dumplings,
- beef ramen, 
+ 
+beef ramen, 
+
 and white rice 
 with salmon.
