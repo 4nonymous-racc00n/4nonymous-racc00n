@@ -69,7 +69,7 @@ easy 2 read:3
 
 ╰ ★ straight . she/her . Japan🇯🇵🥢
 
-
+[![64f24a2aec624ffb36ece56bda58d9ce.gif](https://i.postimg.cc/GpKDdDTj/64f24a2aec624ffb36ece56bda58d9ce.gif)](https://postimg.cc/p99rBpZ9)
 -more about me!
 ⠀⠀                                                     ⠀  ⠀ 
 
