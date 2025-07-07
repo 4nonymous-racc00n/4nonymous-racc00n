@@ -10,11 +10,15 @@
 
 
 
-╭ ❝ name: utsukushi un-yang-chai❞
+
+╭ ❝ name: utsukushi hānshima un-yang-chai❞
  
  •   blue + Yung kai  !!
 
+ • age☆ 16♡
+
 ╰ ★ straight . she/her . Japan🇯🇵🥢
+
 [![tumblr-c0f8a350ae75f51f08321ae84331008c-3c9862dc-400.gif](https://i.postimg.cc/3NHtTS6w/tumblr-c0f8a350ae75f51f08321ae84331008c-3c9862dc-400.gif)](https://postimg.cc/Pp2Wb4dG)
 
 𝜗𝜚 ──   𝑭𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒔𝒐𝒏𝒈 : 𝒃𝒍𝒖𝒆 : 𝒀𝒖𝒏𝒈 kai
