@@ -62,7 +62,10 @@ you tangerines[![Tumblr-l-116645296941990.gif](https://i.postimg.cc/gk92CfDW/Tum
 •私のポニーからインスピレーションを得ようとしないでください
 
 •もしあなたが私の古い友人であったり、私に復讐しようとしているのなら、私があなたの元を去ったのには理由があります。それはあなたのためです。
+
+
 [![Tumblr-l-113613774319082.png](https://i.postimg.cc/hjJGBMmN/Tumblr-l-113613774319082.png)](https://postimg.cc/BL035TMC)
+
 
 જ⁀➴ Do not interact if:
 
