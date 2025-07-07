@@ -38,4 +38,17 @@
 •もしあなたが私の古い友人であったり、私に復讐しようとしているのなら、私があなたの元を去ったのには理由があります。それはあなたのためです。
 [![Tumblr-l-113613774319082.png](https://i.postimg.cc/hjJGBMmN/Tumblr-l-113613774319082.png)](https://postimg.cc/BL035TMC)
 
+જ⁀➴ Do not interact if:
 
+•Racists
+
+•Narcissists
+
+•Under 13 or over 22
+•Do not try to take inspiration from My Pony
+
+•if you think cannibalism or arson is fire or as some people use 'peak'
+
+•you ask to be my friend straight away
+
+•If you are an old friend of mine or are trying to get back at me, dont do that. there is a reason why I left you, and it was because of you.
