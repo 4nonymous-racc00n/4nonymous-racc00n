@@ -78,3 +78,10 @@ It's hard for me to understand.
 呪術廻戦、ソニック、
 鬼滅の刃のエリアにいるよ[![Tumblr-l-111270379770604.gif](https://i.postimg.cc/qvfyZhPk/Tumblr-l-111270379770604.gif)](https://postimg.cc/tY5ssTRf)
 [![Tumblr-l-113606254066933.png](https://i.postimg.cc/9MzpZ4Ry/Tumblr-l-113606254066933.png)](https://postimg.cc/5YdLM2mt)
+
+please if your are goku x vegeta. 
+goku x broly 
+trunks x goten
+frieza x piccolo 
+Gohan x goku shiper,dni.
+[![Tumblr-l-114757426482033.png](https://i.postimg.cc/PJjCh9jN/Tumblr-l-114757426482033.png)](https://postimg.cc/VrKfW75c)
