@@ -13,7 +13,8 @@
 
 ╭ ❝ name: utsukushi hānshima un-yang-chai❞
     can call me un-yang/utsu
- •   blue + Yung kai  !!
+ 
+•   ポニータウンで抱き合うのは気にならないよ  !!
 
  • age☆ 16♡
 
