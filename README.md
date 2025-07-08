@@ -162,7 +162,7 @@ Gohan x goku shiper,dni.
 
 団子、牛肉ラーメン、
 
-そして白米と鮭が大好きです
+そして白米と鮭が大好きです[![Tumblr-l-138661421510589.gif](https://i.postimg.cc/ydFCwXzy/Tumblr-l-138661421510589.gif)](https://postimg.cc/gXk7hhjx)
 
 [![Tumblr-l-111514480608122.gif](https://i.postimg.cc/VNZhxPXB/Tumblr-l-111514480608122.gif)](https://postimg.cc/2qvTWJcV)
 
@@ -174,7 +174,7 @@ I love dumplings,
 beef ramen, 
 
 and white rice 
-with salmon.
+with salmon.[![Tumblr-l-138661421510589.gif](https://i.postimg.cc/ydFCwXzy/Tumblr-l-138661421510589.gif)](https://postimg.cc/gXk7hhjx)
 . 
 
 [![Untitled87-20250708042631.png](https://i.postimg.cc/P55Jy1yp/Untitled87-20250708042631.png)](https://postimg.cc/nCNncj6p)
