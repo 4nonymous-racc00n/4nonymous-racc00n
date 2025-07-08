@@ -45,7 +45,8 @@
 
 [![tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif](https://i.postimg.cc/h4pmgZN3/tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif)](https://postimg.cc/BtPbBpSx)[![tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif](https://i.postimg.cc/h4pmgZN3/tumblr-379da9a9a17cad26ec1d12b998aceb52-bf24db44-400.gif)](https://postimg.cc/BtPbBpSx)
 
-好きな番組
+好きな番組:[![Tumblr-l-137331350372772.gif](https://i.postimg.cc/pdRTGTj7/Tumblr-l-137331350372772.gif)](https://postimg.cc/pmcRyPqY)
+
 東京喰種
 
 
