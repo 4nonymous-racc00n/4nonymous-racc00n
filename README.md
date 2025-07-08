@@ -137,19 +137,19 @@ It's hard for me to understand.
 
 please DNI if you ship
 
-goku x vegeta. 
+goku x vegeta.[![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/Tumblr-l-172944076901838.webp)](https://postimg.cc/5HtQGrd0) 
 
-goku x broly 
+goku x broly [![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/Tumblr-l-172944076901838.webp)](https://postimg.cc/5HtQGrd0)
 
-trunks x goten
+trunks x goten[![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/Tumblr-l-172944076901838.webp)](https://postimg.cc/5HtQGrd0)
 
-frieza x piccolo 
+frieza x piccolo [![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/Tumblr-l-172944076901838.webp)](https://postimg.cc/5HtQGrd0)
 
-sonic x shadow
+sonic x shadow[![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/Tumblr-l-172944076901838.webp)](https://postimg.cc/5HtQGrd0)
 
-sonic x knuckles 
+sonic x knuckles [![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/Tumblr-l-172944076901838.webp)](https://postimg.cc/5HtQGrd0)
 
-sonic x TAILS!!
+sonic x TAILS!![![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/Tumblr-l-172944076901838.webp)](https://postimg.cc/5HtQGrd0)[![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/Tumblr-l-172944076901838.webp)](https://postimg.cc/5HtQGrd0)
 
 
 Gohan x goku shiper,dni.
