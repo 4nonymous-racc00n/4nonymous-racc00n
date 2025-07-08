@@ -57,7 +57,7 @@
 
 [![Tumblr-l-116501874045093.png](https://i.postimg.cc/HsJkRT53/Tumblr-l-116501874045093.png)](https://postimg.cc/6yXKGJMG)
 
-Favorite TV Shows:
+Favorite TV Shows:[![Tumblr-l-137331350372772.gif](https://i.postimg.cc/pdRTGTj7/Tumblr-l-137331350372772.gif)](https://postimg.cc/pmcRyPqY)
 
  Tokyo Ghoul
 
