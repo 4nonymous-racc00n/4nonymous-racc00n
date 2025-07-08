@@ -159,7 +159,7 @@ Gohan x goku shiper,dni.[![Tumblr-l-111724109198318.gif](https://i.postimg.cc/YC
 
 
 
-年齢• 16歳
+
 好きな色 "[![Tumblr-l-111542294018679.gif](https://i.postimg.cc/mDGLF965/Tumblr-l-111542294018679.gif)](https://postimg.cc/zL0ZsyNC)"
 
 団子、牛肉ラーメン、
@@ -168,7 +168,7 @@ Gohan x goku shiper,dni.[![Tumblr-l-111724109198318.gif](https://i.postimg.cc/YC
 
 [![Tumblr-l-111514480608122.gif](https://i.postimg.cc/VNZhxPXB/Tumblr-l-111514480608122.gif)](https://postimg.cc/2qvTWJcV)
 
-Age: 16
+
 Favorite color: "[![Tumblr-l-111542294018679.gif](https://i.postimg.cc/mDGLF965/Tumblr-l-111542294018679.gif)](https://postimg.cc/zL0ZsyNC)"
 
 I love dumplings,
