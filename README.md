@@ -159,7 +159,6 @@ sonic x TAILS!! [![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/
 
 Gohan x goku shiper,dni.[![Tumblr-l-111724109198318.gif](https://i.postimg.cc/YCJnRC3g/Tumblr-l-111724109198318.gif)](https://postimg.cc/Hr99sHFs)
 [![Tumblr-l-114757426482033.png](https://i.postimg.cc/PJjCh9jN/Tumblr-l-114757426482033.png)](https://postimg.cc/VrKfW75c)
-[![452554169-7059198d-2836-4459-9299-222b4f0da749.gif](https://i.postimg.cc/PfLCv5wj/452554169-7059198d-2836-4459-9299-222b4f0da749.gif)](https://postimg.cc/JtLr9mx6)
 
 
 
