@@ -13,7 +13,8 @@
 
 ╭ ❝ name: utsukushi hānshima un-yang-chai❞
    
-     can call me un-yang/utsu[![Tumblr-l-137331350372772.gif](https://i.postimg.cc/pdRTGTj7/Tumblr-l-137331350372772.gif)](https://postimg.cc/pmcRyPqY)
+     can call me un-yang/utsu
+[![Tumblr-l-137331350372772.gif](https://i.postimg.cc/pdRTGTj7/Tumblr-l-137331350372772.gif)](https://postimg.cc/pmcRyPqY)
  
 •   ポニータウンで抱き合うのは気にならないよ  !!
 
