@@ -67,12 +67,20 @@ gives
 you tangerines[![Tumblr-l-116645296941990.gif](https://i.postimg.cc/gk92CfDW/Tumblr-l-116645296941990.gif)](https://postimg.cc/vDzy92kq)
 
 [![Tumblr-l-113601039122745.png](https://i.postimg.cc/K8yxWxJX/Tumblr-l-113601039122745.png)](https://postimg.cc/Yh85Gc58)
+
 જ⁀➴ のような方とは交流しないでください。
+
 •人種差別主義者
+
+
 •ナルシスト
+
+
 •13歳未満または22歳以上
 
+
 •私のポニーからインスピレーションを得ようとしないでください
+
 
 •もしあなたが私の古い友人であったり、私に復讐しようとしているのなら、私があなたの元を去ったのには理由があります。それはあなたのためです。
 
