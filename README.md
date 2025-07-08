@@ -193,4 +193,5 @@ https://github.com/Rex-s0ul /nf
 [![Tumblr-l-111769943905247.png](https://i.postimg.cc/Gt35Zg61/Tumblr-l-111769943905247.png)](https://postimg.cc/62ScZc9H)
 [![Tumblr-l-111747538145801.png](https://i.postimg.cc/tC9LnkR6/Tumblr-l-111747538145801.png)](https://postimg.cc/BtwhdxKZ)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tdufoky5w4wbjdcm4c3oiecmwm&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31tdufoky5w4wbjdcm4c3oiecmwm&redirect=true)
 
