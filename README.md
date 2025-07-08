@@ -149,10 +149,9 @@ sonic x shadow[![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/Tu
 
 sonic x knuckles [![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/Tumblr-l-172944076901838.webp)](https://postimg.cc/5HtQGrd0)
 
-sonic x TAILS!![![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/Tumblr-l-172944076901838.webp)](https://postimg.cc/5HtQGrd0) [![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/Tumblr-l-172944076901838.webp)](https://postimg.cc/5HtQGrd0)
+sonic x TAILS!![![Tumblr-l-172944076901838.webp](https://i.postimg.cc/k5QNVrTx/Tumblr-l-172944076901838.webp)](https://postimg.cc/5HtQGrd0) 
 
-
-Gohan x goku shiper,dni.
+Gohan x goku shiper,dni.[![Tumblr-l-111724109198318.gif](https://i.postimg.cc/YCJnRC3g/Tumblr-l-111724109198318.gif)](https://postimg.cc/Hr99sHFs)
 [![Tumblr-l-114757426482033.png](https://i.postimg.cc/PJjCh9jN/Tumblr-l-114757426482033.png)](https://postimg.cc/VrKfW75c)
 
 
