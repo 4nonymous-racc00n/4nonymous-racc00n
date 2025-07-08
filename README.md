@@ -32,6 +32,9 @@
 
 𝜗𝜚 ──   𝑭𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒔𝒐𝒏𝒈 : 𝒃𝒍𝒖𝒆 : 𝒀𝒖𝒏𝒈 kai
 
+[![Tumblr-l-208472509511195.png](https://i.postimg.cc/CL84wyTs/Tumblr-l-208472509511195.png)](https://postimg.cc/gnYhKT0x)
+
+
 [![Tumblr-l-137536331934010.gif](https://i.postimg.cc/MpjV2vvp/Tumblr-l-137536331934010.gif)](https://postimg.cc/4Ysmp46D)
 
 ❝恋に落ちるのを想像する
