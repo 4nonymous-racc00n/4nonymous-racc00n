@@ -17,7 +17,7 @@
  
 •   ポニータウンで抱き合うのは気にならないよ  !!
 
- • age☆ [![Tumblr-l-137170939953771.gif](https://i.postimg.cc/brNkKg27/Tumblr-l-137170939953771.gif)](https://postimg.cc/5YTXzwgg)♡
+ • age☆ [![Tumblr-l-137170939953771.gif](https://i.postimg.cc/brNkKg27/Tumblr-l-137170939953771.gif)](https://postimg.cc/5YTXzwgg)[![Tumblr-l-137177372196882.gif](https://i.postimg.cc/024DBp54/Tumblr-l-137177372196882.gif)](https://postimg.cc/6yd874vV)♡
 
 ╰ ★ straight . she/her . Japan🇯🇵🥢
 
