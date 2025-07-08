@@ -111,8 +111,8 @@ dont do that. there is a reason why I left you,
 and it was because of you.
  
 
-[![Tumblr-l-137119874268077.png](https://i.postimg.cc/d1nTmCS4/Tumblr-l-137119874268077.png)](https://postimg.cc/mzzDTP4H)
 
+[![Tumblr-l-137119874268077.png](https://i.postimg.cc/d1nTmCS4/Tumblr-l-137119874268077.png)](https://postimg.cc/mzzDTP4H)
 I beg you, dont copy my respiratory/profile, 
 it'll make me
 really sad and frustrated. they're hard and they
