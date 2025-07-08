@@ -186,7 +186,7 @@ with salmon.[![Tumblr-l-138661421510589.gif](https://i.postimg.cc/ydFCwXzy/Tumbl
 THANKS YOU FOR READING!♡[![Tumblr-l-111724109198318.gif](https://i.postimg.cc/YCJnRC3g/Tumblr-l-111724109198318.gif)](https://postimg.cc/Hr99sHFs)
 
 
-follow @neurocannibalism 
+follow **@neurocannibalism**
 [![Tumblr-l-111769943905247.png](https://i.postimg.cc/Gt35Zg61/Tumblr-l-111769943905247.png)](https://postimg.cc/62ScZc9H)
 [![Tumblr-l-111747538145801.png](https://i.postimg.cc/tC9LnkR6/Tumblr-l-111747538145801.png)](https://postimg.cc/BtwhdxKZ)
 
