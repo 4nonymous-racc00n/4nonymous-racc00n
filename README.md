@@ -73,7 +73,7 @@ you tangerines[![Tumblr-l-116645296941990.gif](https://i.postimg.cc/gk92CfDW/Tum
 
 જ⁀➴ のような方とは交流しないでください。
 
-•人種差別主義者
+•人種差別主義者[![Tumblr-l-137291075345300.gif](https://i.postimg.cc/zvsDnX5x/Tumblr-l-137291075345300.gif)](https://postimg.cc/n91txxXm)
 
 
 •ナルシスト
