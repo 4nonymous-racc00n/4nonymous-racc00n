@@ -1,5 +1,5 @@
 [![Tumblr-l-111752037625298.png](https://i.postimg.cc/d0LtK4Pr/Tumblr-l-111752037625298.png)](https://postimg.cc/nsft4KLh)
-[![Tumblr-l-111329620735485.png](https://i.postimg.cc/HnTqTkcR/Tumblr-l-111329620735485.png)](https://postimg.cc/HcPZ2Ht9)[![Tumblr-l-111604251608673.png](https://i.postimg.cc/3xkP86N8/Tumblr-l-111604251608673.png)](https://postimg.cc/pmt0ksK4)[![Tumblr-l-116448602213900.png](https://i.postimg.cc/kXcPTZYw/Tumblr-l-116448602213900.png)](https://postimg.cc/bss5J6h2)[![Tumblr-l-137284048996382.gif](https://i.postimg.cc/Twcn7Fhj/Tumblr-l-137284048996382.gif)](https://postimg.cc/R6N3qP7q) some translated to English 
+[![Tumblr-l-111329620735485.png](https://i.postimg.cc/HnTqTkcR/Tumblr-l-111329620735485.png)](https://postimg.cc/HcPZ2Ht9)[![Tumblr-l-111604251608673.png](https://i.postimg.cc/3xkP86N8/Tumblr-l-111604251608673.png)](https://postimg.cc/pmt0ksK4)[![Tumblr-l-116448602213900.png](https://i.postimg.cc/kXcPTZYw/Tumblr-l-116448602213900.png)](https://postimg.cc/bss5J6h2)[![Tumblr-l-137284048996382.gif](https://i.postimg.cc/Twcn7Fhj/Tumblr-l-137284048996382.gif)](https://postimg.cc/R6N3qP7q)[![Tumblr-l-138490331438981.gif](https://i.postimg.cc/cHqN9kPJ/Tumblr-l-138490331438981.gif)](https://postimg.cc/QBqPVm8L) some translated to English 
 
 [![Tumblr-l-111769943905247.png](https://i.postimg.cc/Gt35Zg61/Tumblr-l-111769943905247.png)](https://postimg.cc/62ScZc9H)
 [![Untitled85-20250708024515.png](https://i.postimg.cc/Qt8mt9mQ/Untitled85-20250708024515.png)](https://postimg.cc/R3YKp0jh)
@@ -47,7 +47,7 @@
 
 好きな番組:[![Tumblr-l-137331350372772.gif](https://i.postimg.cc/pdRTGTj7/Tumblr-l-137331350372772.gif)](https://postimg.cc/pmcRyPqY)
 
-東京喰種
+東京喰種[![Tumblr-l-138661421510589.gif](https://i.postimg.cc/ydFCwXzy/Tumblr-l-138661421510589.gif)](https://postimg.cc/gXk7hhjx)
 
 
 ドラゴンボール
@@ -60,7 +60,7 @@
 
 Favorite TV Shows:[![Tumblr-l-137331350372772.gif](https://i.postimg.cc/pdRTGTj7/Tumblr-l-137331350372772.gif)](https://postimg.cc/pmcRyPqY)
 
- Tokyo Ghoul
+ Tokyo Ghoul[![Tumblr-l-138661421510589.gif](https://i.postimg.cc/ydFCwXzy/Tumblr-l-138661421510589.gif)](https://postimg.cc/gXk7hhjx)
 
 
 Dragon Ball
@@ -118,7 +118,7 @@ and it was because of you.
 I beg you, dont copy my respiratory/profile, 
 it'll make me
 really sad and frustrated. they're hard and they
-take a bit some time[![Tumblr-l-111270379770604.gif](https://i.postimg.cc/qvfyZhPk/Tumblr-l-111270379770604.gif)](https://postimg.cc/tY5ssTRf)
+take a bit some[![Tumblr-l-138666235864432.gif](https://i.postimg.cc/x85Ddf8k/Tumblr-l-138666235864432.gif)](https://postimg.cc/QKFn4rps) time[![Tumblr-l-111270379770604.gif](https://i.postimg.cc/qvfyZhPk/Tumblr-l-111270379770604.gif)](https://postimg.cc/tY5ssTRf)
 [![Tumblr-l-113820094244280.png](https://i.postimg.cc/wBMqXFw3/Tumblr-l-113820094244280.png)](https://postimg.cc/2qpNmdRf)
 
 すみません、難しい言葉は苦手です。
