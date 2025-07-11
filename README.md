@@ -76,7 +76,7 @@ Favorite TV Shows:[![Tumblr-l-137331350372772.gif](https://i.postimg.cc/pdRTGTj7
 
 
 Dragon Ball
-
+ᵎᵎ ⩇⩇:⩇⩇ ✮ִ ࣪𖤐___ ★₊
 
 when life 
 gives
